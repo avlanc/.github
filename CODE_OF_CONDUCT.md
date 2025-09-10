@@ -13,4 +13,4 @@ We pledge to make participation in Avlanc Labs projects a harassment-free experi
 ## Enforcement
 Instances of abusive, harassing, or otherwise unacceptable behavior may be reported to the Avlanc Labs team.
 
-📧 Contact: contact@avlanclabs.com
+📧 Contact: samarthsharma9377@gmail.com
